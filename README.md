@@ -2,6 +2,7 @@
 ![](https://media.tenor.com/NjbtSuNRGgYAAAAC/hola-jojos-bizarre-adventure.gif)
 ![](https://media.tenor.com/C-S8dtjO6EcAAAAC/jojos-bizarre-adventures-jjba.gif)
 ![](https://media.tenor.com/bBO2LnfMLkkAAAAd/jojo-gwess-yoshi.gif)
+![](https://media.tenor.com/RbmvWMGH2fsAAAAd/jojo-anime.gif)
 <!--
 **FlorzCavaleira/FlorzCavaleira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
