@@ -1,4 +1,4 @@
-### Ola gurizada do mal 💜 
+### Oi gente, bora ao mossar?
 ![](https://media.tenor.com/NjbtSuNRGgYAAAAC/hola-jojos-bizarre-adventure.gif)
 ![](https://media.tenor.com/RbmvWMGH2fsAAAAd/jojo-anime.gif)
 <!--
