@@ -1,5 +1,6 @@
-### Ola gurizada do mal 👋
+### Ola gurizada do mal 💜 
 ![](https://media.tenor.com/NjbtSuNRGgYAAAAC/hola-jojos-bizarre-adventure.gif)
+![](https://media.tenor.com/C-S8dtjO6EcAAAAC/jojos-bizarre-adventures-jjba.gif)
 <!--
 **FlorzCavaleira/FlorzCavaleira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
