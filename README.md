@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+![](https://media.tenor.com/uXcjvwhgoEQAAAAC/raksha-bandhan-rakhi.gif)
 <!--
 **FlorzCavaleira/FlorzCavaleira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
