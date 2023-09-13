@@ -1,5 +1,4 @@
-### Indo ali 😱😱😱😱
-![](https://media.tenor.com/NjbtSuNRGgYAAAAC/hola-jojos-bizarre-adventure.gif)
+### É um mininin de papai, é? 
 ![](https://media.tenor.com/RbmvWMGH2fsAAAAd/jojo-anime.gif)
 <!--
 **FlorzCavaleira/FlorzCavaleira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
